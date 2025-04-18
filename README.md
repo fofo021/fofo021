@@ -1,4 +1,5 @@
-![IMG_20240912_030758](https://github.com/user-attachments/assets/8f7830b3-af37-4313-9957-df660d102681)
+![Screenshot_۲۰۲۵۰۴۱۸_۱۳۳۴۲۹_OneDrive](https://github.com/user-attachments/assets/948144cb-9a7c-440e-9f67-cc4e4ee1dc94)
+
 ## Hi there 👋
 
 <!--
